@@ -1,6 +1,6 @@
-# Catdex-repositorio
+# Street Catdex-repositorio
 Privacy policy
-# Política de Privacidad de [catdex]
+# Política de Privacidad de [street catdex]
 
 Última actualización: Noviembre de 2026
 
